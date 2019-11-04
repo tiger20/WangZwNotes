@@ -1,1 +1,1 @@
-# WangZwNotes
+# Internship Diary
